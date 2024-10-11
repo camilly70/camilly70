@@ -1,3 +1,3 @@
-Camilly Victoria
-Estudante
-:a
+Camilly Victória
+
+1 ano EM
