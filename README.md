@@ -5,4 +5,4 @@ Estudante do Ensino Médio
 Ciências Humanas 📔 
 
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSum_TdnbqZFnAbOikHp_GU7X-YbnxxtP3IUA&usqp=CAU)
+![](https://i.pinimg.com/originals/a1/22/6b/a1226b25b2a64dd40707f72e3d70439f.gif)
